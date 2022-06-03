@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning schedule
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me by instragram
-- geova-na4123
+- @geova-na4123
